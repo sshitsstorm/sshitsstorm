@@ -17,6 +17,5 @@
         ⌗    i am very awkward all the time     ┊          ⌗    often at bakery or with friends
 
 <img width="600" height="300" alt="Judgement" src="https://github.com/user-attachments/assets/a783681c-bcaf-47a6-b949-3ea17820c6d2" />
-
-       prepare thyself
+ prepare thyself
 
